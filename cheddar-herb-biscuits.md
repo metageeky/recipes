@@ -21,7 +21,7 @@
 
 * 1 ounce unsalted butter (diced and chilled)
 
-* 2 ounces shortening (diced and chilled)
+* 4 ounces shortening (diced and chilled)
 
 * 1 cup finely shredded sharp cheddar (chilled)
 
