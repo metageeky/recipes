@@ -66,4 +66,4 @@
 
 * Other herbage I sometimes add: dried rosemary, thyme, parsley, sage, etc. I tend to avoid fresh herbs in these biscuits due to their moisture content.
 
-- You can replace up to 2/3 of the buttermilk with beer. I recommend a dark porter as it pairs well with the cheddar*
+- You can replace up to 2/3 of the buttermilk with beer. I recommend a dark porter as it pairs well with the cheddar.
