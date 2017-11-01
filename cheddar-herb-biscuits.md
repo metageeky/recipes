@@ -9,7 +9,7 @@
 
 * 1.5 tsp kosher salt
 
-* 1 tbsp corn flour or fine cornmeala (just grind to fine in spice grinder)
+* 1 tbsp corn flour or fine cornmeal (just grind to fine in spice grinder)
 
 * 1 tsp powdered sugar
 
