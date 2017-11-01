@@ -41,13 +41,13 @@
 
 5. Once all the flour is taken up and the dough is not too wet, dump the dough onto a lightly floured surface and knead and fold the dough for 1-2 minutes until it is soft and smooth.
 
-6. Roll the dough to roughly 1in think. Using Using a biscuit cutter of your prefered size, cut out biscuits. Be sure to press the cutter all the way though and twist to punch out the dough. 
+6. Roll the dough to roughly 0.5-1 inch think. Using Using a biscuit cutter of your prefered size, cut out biscuits. Be sure to press the cutter all the way though and twist to punch out the dough. 
 
 7. Take the scraps and reroll out until you have used up all the dough.
 
 8. Place the biscuits on a half-sheet pan so that they barely touch. Dimple the top of each biscuit with your thumb to prevent doming.
 
-9. Bake 15-20 minutes until the biscuits are talk and light gold in color. 
+9. Bake 15-20 minutes until the biscuits are tall and light gold in color. 
 
 10. Let sit 5 minutes and then turn them out onto a cooling rack or towel bottom side up. Do not depan the biscuits too early due to the cheese needing to gel some first.
 
@@ -62,7 +62,7 @@
 
 * If it's hot or you have warm hands, you might want to rest the pre-buttermilk dough in a fridge or freezer. Otherwise, the fat can render out when baking. Not good eats.
 
-* If you shred your own cheese, do it very finely. You want the cheese to be pretty finely integrated. The best biscuits I've made have literally involved over 30 minutes of working the dough.
+* If you shred your own cheese, do it very finely. You want the cheese to be pretty finely integrated. The best biscuits I've made have literally involved over 30 minutes of working the dry goods and fats together.
 
 * Other herbage I sometimes add: dried rosemary, thyme, parsley, sage, etc. I tend to avoid fresh herbs in these biscuits due to their moisture content.
 
