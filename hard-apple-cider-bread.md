@@ -35,7 +35,9 @@
 7. Mix the ingredients. Treat this batter like a quick bread or pancake recipe. You don’t need to over mix, and a few dry spots will cook out. The batter shouldn’t be too wet or too dry but a bit goopy. Add more flour or liquid depending on the consistency.
 8. Taste the batter. If you want more spiciness to it or more apple-y goodness, add more. The batter is safe to eat raw (and you will want to!). I sometimes sprinkle in more baking soda/powder as I get paranoid about leavening.
 9. Spray loaf pans with cooking spray and spoon batter into each between 1/2 to 2/3 full. Feel free to lick out the bowl and spoon, but be ready for any inebriation that follows.
+
 10 .Bake loaves for up to 40 minutes. Mini-loaves cook much faster, of course. Keep an eye on the risen tops to see if they appear set. They are done when a toothpick in the middle comes out mostly clean.
+
 11. Let cool before eating.
 
 ## SERVING SUGGESTIONS
