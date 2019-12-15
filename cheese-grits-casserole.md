@@ -2,8 +2,8 @@
 
 ## Ingredients
 * 1 1/2 C. quick grits
-* 1 C. Milk
-* 5 C. water
+* 1 C. Milk (optional)
+* 5 C. water (use 6 cups if not using milk)
 * 1/2 lb. Cheddar Cheese, grated
 * 2 eggs, beaten
 * 1 stick of butter, cubed
@@ -18,16 +18,18 @@
 * paprika
 
 ### Notes
-* You can purchase savory salt in the spice aisle or you can make your 
-own.  I tend to do the latter by combining celery salt, onion powder, 
-white or black pepper, dried mustard power, cayenne, paprika, etc. Tastes much better.
+* Most of the spices, herbs, vegetables, and hot sauce are all optional. You can mix up different flavor profiles 
+  as you desire. However, the 1 tsp paprika should be added to be truly Kentuckian.
+* You can purchase savory salt in the spice aisle or you can make your own.  I tend to do the latter by combining 
+  celery salt, onion powder, white or black pepper, dried mustard power, cayenne, paprika, etc. Tastes much better.
 
 ## Directions
 1. Preheat the oven to 350 degrees.
+
 2. Add the milk and water to a large pot and cook the grits in the water until 
-thickened according to the directions on the box.  It is best to let the 
-grits cook for a few minutes longer than recommended in order to get a 
-good creamy texture.  
+   thickened according to the directions on the box.  It is best to let the 
+   grits cook for a few minutes longer than recommended in order to get a 
+   good creamy texture.  
 
 3. Once the grits are done, remove the pot from heat.  
 
@@ -38,13 +40,19 @@ good creamy texture.
      * Stir a few times and then add the cheese in  batches, doing your best to 
        integrate the cheese well into the mix.
        
-the mix.  Stir in the eggs quickly to avoid scrambling the eggs.  Once 
-integrated, transfer into an 8.5 x 14 inch pan. 
+     * Stir in the eggs quickly to avoid scrambling the eggs.  
+     
+5. Once integrated, transfer the grits mixture into a sprayed 8.5 x 14 inch pan. 
 
-Cook for 1 hour.  After 50 minutes, sprinkle the casserole with paprika.  
-Once out of the oven, let stand for 10 minutes to firm.
+6. Cook for at least 1 hour. The longer you cook, the thicker it will get.
 
-To get a thicker casserole, reduce the heat to low and let the pan rest 
-in the oven for up to an additional hour.
+7. Ten minutes before you plan to remove it from the oven, sprinkle the top of the 
+   casserole with paprika.  
 
-* 
+8. Once out of the oven, let stand for 10 minutes to firm.
+
+### Notes
+* If you need to hold the dish, reduce the heat to low and let the pan rest in the oven 
+  for up to an additional hour.
+* Leftovers are great heated up or left cold. 
+* Casserole freezes well. 
