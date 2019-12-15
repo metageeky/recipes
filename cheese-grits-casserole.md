@@ -2,9 +2,9 @@
 
 ## Ingredients
 * 1 1/2 C. quick grits
-* 1 C. Milk (optional)
+* 1 C. milk (optional)
 * 5 C. water (use 6 cups if not using milk)
-* 1/2 lb. Cheddar Cheese, grated
+* 1/2 lb. cheddar cheese, grated
 * 2 eggs, beaten
 * 1 stick of butter, cubed
 * 2 tsp salt
@@ -19,9 +19,14 @@
 
 ### Notes
 * Most of the spices, herbs, vegetables, and hot sauce are all optional. You can mix up different flavor profiles 
-  as you desire. However, the 1 tsp paprika should be added to be truly Kentuckian.
+  as you desire. However, the 1 tsp paprika should always be added as it gives good color and umami to the dish.
 * You can purchase savory salt in the spice aisle or you can make your own.  I tend to do the latter by combining 
   celery salt, onion powder, white or black pepper, dried mustard power, cayenne, paprika, etc. Tastes much better.
+* Although I generally support using more cheese in any dish, this dish can turn into pure grease if too much cheese 
+  is over used. Use up to 3/4 lb at most.
+* Sharp cheddar provides the best flavor, so that should be your primary cheese. You can add others as long as they 
+  are real cheese and not melting cheeses like American or Velveeta. I once did a casserole with poblanos and a 1:1 
+  ratio of cheddar and pepper jack.
 
 ## Directions
 1. Preheat the oven to 350 degrees.
