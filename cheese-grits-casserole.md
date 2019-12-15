@@ -22,19 +22,22 @@
 own.  I tend to do the latter by combining celery salt, onion powder, 
 white or black pepper, dried mustard power, cayenne, paprika, etc. Tastes much better.
 
-
-Directions:
-
-Preheat the oven to 350 degrees.
-
-Add the milk and water to a large pot and cook the grits in the water until 
+## Directions
+1. Preheat the oven to 350 degrees.
+2. Add the milk and water to a large pot and cook the grits in the water until 
 thickened according to the directions on the box.  It is best to let the 
 grits cook for a few minutes longer than recommended in order to get a 
-good creamy texture.  Once the grits are done, remove the pot from heat.  
-The following ingredients must be added in a select order to mix well.  
-Add the butter and start stirring.  While stirring, add all the 
-ingredients except the cheese and the eggs.  Stir a few times and then add 
-the cheese in  batches, doing your best to integrate the cheese well into 
+good creamy texture.  
+
+3. Once the grits are done, remove the pot from heat.  
+
+4. The following ingredients must be added in a select order to mix well:
+     * Add the butter and start stirring.  
+     * While stirring, add all the ingredients except the cheese and the eggs.  
+     
+     * Stir a few times and then add the cheese in  batches, doing your best to 
+       integrate the cheese well into the mix.
+       
 the mix.  Stir in the eggs quickly to avoid scrambling the eggs.  Once 
 integrated, transfer into an 8.5 x 14 inch pan. 
 
