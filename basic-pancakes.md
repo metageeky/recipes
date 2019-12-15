@@ -35,6 +35,7 @@
 7. Repeat until batter is used up.
 
 ## Notes
+* I tend to lessen the amount of sugar each time. You just need some for proper browning.
 * Adjust the heat of the pan as you go. You don't want to burn the pancakes but the flipping can cause issues.
 * Wipe down the pan from time to time.
 * Batter may need adjustments to thickness as you go.
