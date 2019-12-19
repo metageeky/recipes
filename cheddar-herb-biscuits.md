@@ -41,7 +41,7 @@
 
 5. Once all the flour is taken up and the dough is not too wet, dump the dough onto a lightly floured surface and knead and fold the dough for 1-2 minutes until it is soft and smooth.
 
-6. Roll the dough to roughly 0.5-1 inch think. Using Using a biscuit cutter of your prefered size, cut out biscuits. Be sure to press the cutter all the way though and twist to punch out the dough. 
+6. Roll the dough to roughly 0.5-1 inch think. Using a biscuit cutter of your prefered size, cut out biscuits. Be sure to press the cutter all the way though and twist to punch out the dough. 
 
 7. Take the scraps and reroll out until you have used up all the dough.
 
