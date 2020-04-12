@@ -1,4 +1,4 @@
-# Ol' Kentucky Cheese Grits
+# Ol' Kentucky Cheese Grits Casserole
 
 ## Ingredients
 * 1 1/2 C. quick grits
