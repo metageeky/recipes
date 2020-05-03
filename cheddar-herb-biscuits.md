@@ -5,7 +5,7 @@
 
 * 3 tbsp baking powder
 
-* 1/2 teaspoon baking powder
+* 1/2 teaspoon baking soda
 
 * 1.5 tsp kosher salt
 
