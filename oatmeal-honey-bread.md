@@ -11,12 +11,13 @@
 * 1 3/4 cup all-purpose flour
 * 1 tsp baking soda
 * 1 tsp salt
-* 1 tsp ground cinnamon
+* 2 tsp ground cinnamon
 * 1 large egg, beaten
 * 1 cup diced, peeled apple (optional)
 
 ## Notes
 * You can bake this bread in smaller pans but will need to adjust the baking time.
+* If you use an apple, go for one that is more tart. It will pair well with the sweetness of the honey.
   
 ## Directions
 1. Preheat the oven to 350F (180C). Grease (with butter, shortening, etc.) a 9x5 inch loaf pan (or whatever pans you are using).
