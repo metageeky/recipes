@@ -6,7 +6,7 @@
 * 1-2 apples (sweet like Honeycrisp or Fuji)
 * 1/4 cup all purpose flour
 * 4 cups vegetable broth
-* 4 cups cubed winter squash (acorn, butternut, carnival, pumpking, etc.)
+* 4 cups cubed winter squash (acorn, butternut, carnival, pumpkin, etc.)
 * 1 cup whole milk
 * 2 tbsp salted butter
 * 1-2 cups of sharp cheddar cheese (shredded or cubed)
@@ -16,7 +16,7 @@
 * salt and pepper to taste
 
 ## Directions
-1. Heat the olive oil in a large pot over medium heat. When ready, add the onion and half the chopped apple. Cook about 10 minutes until fragrant.
+1. Heat the olive oil in a large pot over medium heat. When ready, add the butter, onion, and half the chopped apple. Cook about 10 minutes until fragrant.
 2. Whisk in the flour and cook about two minutes until golden.
 3. Whisk in the broth until smooth.
 4. Add the squash, cayenne, remaining apple, and a large pinch of salt and pepper.
