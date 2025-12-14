@@ -19,9 +19,9 @@
 
 * 1 tbsp onion powder
 
-* 1 ounce unsalted butter (diced and chilled)
+* 1 ounce (2 tbsp) unsalted butter (diced and chilled)
 
-* 4 ounces shortening (diced and chilled)
+* 4 ounces (1/2 cup) shortening (diced and chilled)
 
 * 1 cup finely shredded sharp cheddar (chilled)
 
